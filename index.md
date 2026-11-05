@@ -1,4 +1,4 @@
-**Terms and Conditions**
+**Nip Calculator Terms and Conditions**
 
 Welcome to Nip Calculator. By accessing and using this app, you agree to comply with and be bound by the following terms.
 
